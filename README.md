@@ -1,2 +1,0 @@
-# LoVE20
-LOVYAAA
